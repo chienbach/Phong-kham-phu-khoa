@@ -37,6 +37,6 @@
 	</li>
 </ul>
 
-<p style="text-align:justify">mọi thắc mắc nào không giống về <a href="http://phongkhamthaiha.com/hinh-anh-cua-benh-sui-mao-ga-102221.html"><strong>hình ảnh bệnh sùi mào gà ở nam giới</strong></a> cùng một số vấn đề có tác động, chúng ta có thể can dự tới số hotline tại <strong>cơ sở y tế đa khoa Thái Hà</strong> 01665 115 116 &ndash; 01665 116 117 hoặc nhấp chuột vào nút thầy thuốc tham mưu dưới đây với được trả lời.</p>
+<p style="text-align:justify">mọi thắc mắc nào không giống về <strong>hình ảnh bệnh sùi mào gà ở nam giới</strong> cùng một số vấn đề có tác động, chúng ta có thể can dự tới số hotline tại <strong>cơ sở y tế đa khoa Thái Hà</strong> 01665 115 116 &ndash; 01665 116 117 hoặc nhấp chuột vào nút thầy thuốc tham mưu dưới đây với được trả lời.</p>
 
 <h2 style="text-align:center">&nbsp;</h2>
